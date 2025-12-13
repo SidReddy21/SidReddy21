@@ -22,6 +22,5 @@
 
 ### 📫 Reach Me
 
-📧 **Email:** your.email@example.com  
-🌐 **Website:** yoursite.com  
-💼 **LinkedIn:** linkedin.com/in/yourprofile  
+📧 **Email:** sidreddy21@gmail.com  
+💼 **LinkedIn:** linkedin.com/in/sid~reddy/
