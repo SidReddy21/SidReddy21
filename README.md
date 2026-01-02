@@ -22,5 +22,5 @@
 
 ### 📫 Reach Me
 
-📧 **Email:** sidreddy21 [at] gmail.com  
+📧 **Email:** sidreddy21 [at] gmail [dot] com  
 💼 **LinkedIn:** [linkedin.com/in/sid~reddy/](http://linkedin.com/in/sid~reddy/)
